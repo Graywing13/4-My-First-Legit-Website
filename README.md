@@ -1,1 +1,2 @@
 # 4-My-First-Legit-Website-Github
+So. Hello World. I currently have no idea how this whole thing works, but it's a nice brain break and it's fun. By the way, today is 2018.07.30. One day until I have to get 50% Coding, Math, and Phys done. 
